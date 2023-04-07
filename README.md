@@ -5,3 +5,4 @@
 - https://www.youtube.com/watch?v=VZqG7HjT2AQ
 - https://www.readysetcloud.io/blog/allen.helton/direct-integrations-arent-scary/
 - https://www.youtube.com/watch?app=desktop&v=mgkgQtMplPY
+- https://www.youtube.com/watch?v=mZsGPCSg7Vg
